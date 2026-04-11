@@ -1,1 +1,1 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ**samielle** |  **sam** https://media.discordapp.net/attachments/1478989522258759846/1492526659520167987/hsadMAAAAGSURBVAMAFD5MeEXmjsAAAAASUVORK5CYII.png?ex=69dba745&is=69da55c5&hm=e2f3b88f442cc53c301fa72e217fe57a910e07d0e57130c0f85f924aa42a782d&=&format=webp&quality=lossless&width=1241&height=699
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ**samielle** |  **sam** 
