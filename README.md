@@ -1,4 +1,4 @@
-$\color{darkred}{\text{samielle}}$ $\color{darkblue}{\text{|}}$  $\color{yellow}{\text{sam}}$ ㅤㅤㅤ
+<text align="center">ㅤㅤㅤㅤㅤ$\color{darkred}{\text{samielle}}$ $\color{darkblue}{\text{|}}$  $\color{yellow}{\text{sam}}$ ㅤㅤㅤ
 
 
 <text align="center">ㅤㅤㅤㅤㅤshe ⧽ her     xe ﹕ xem    paw ⌇ paw/paws
