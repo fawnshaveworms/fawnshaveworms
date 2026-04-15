@@ -17,5 +17,5 @@
 <text align="center"> ㅤㅤ[strawpage](https://fawnshaveworms.straw.page/)  ㅤㅤ [pronounscc](https://pronouns.cc/@fawnshaveworms)  ㅤㅤ [atabook](https://fawnshaveworms.atabook.org/)
    
    
-ㅤㅤ<img align="center" width="98" height="100" alt="image" src="https://github.com/user-attachments/assets/88e7a3f2-51c1-434d-9124-ed909d311d53" /><img width="98" height="100" alt="image" src="https://media.discordapp.net/attachments/1478989522258759846/1492543518101471262/9O8KuBAAAABklEQVQDANnwzRQ8dJPTAAAAAElFTkSuQmCC.png?ex=69dbb6f8&is=69da6578&hm=1a22e06db87d09dcb55236d0cf6206b9f695facf5646cca86d098eba72963f45&=&format=webp&quality=lossless&width=688&height=403" /><img width="100" height="100" alt="image" src="https://media.discordapp.net/attachments/1478989522258759846/1492545454913749042/a14n7AAAAAZJREFUAwBl5Muo5HIxfAAAAABJRU5ErkJggg.png?ex=69dbb8c6&is=69da6746&hm=679566fe0866c50ec514450d7da218b6b08e06fb51b382d57fd825006fee869d&=&format=webp&quality=lossless&width=1240&height=704" />
+ㅤㅤ
 
