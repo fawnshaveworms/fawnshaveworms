@@ -1,7 +1,7 @@
 <text align="center">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**samielle**  |  **sam**ㅤㅤㅤ
 
 
-<text align="center">ㅤㅤㅤㅤㅤshe ⧽ her     xe ﹕ xem    paw ⌇ paw/paws
+<text align="center">ㅤㅤㅤㅤㅤshe ⧽ her     fae ﹕ faer    paw ⌇ paw/paws
 
 
 <text align="center">ㅤㅤㅤㅤfilo/engㅤㅤ ㅤノㅤㅤJESTERDOLL4EVER 
