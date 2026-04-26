@@ -4,9 +4,9 @@
 <text align="center">ㅤㅤㅤㅤㅤshe ⧽ her     fae ﹕ faer    paw ⌇ paw/paws
 
 
-<text align="center">ㅤㅤㅤㅤfilo/engㅤㅤ ㅤノㅤㅤJESTERDOLL4EVER 
+<text align="center">ㅤㅤㅤㅤfilo/engㅤㅤ ㅤノㅤㅤJESTERDOLL4EVER
 
-<text align="center">ㅤㅤㅤㅤㅤㅤㅤCEO OF JESTERDOLL  
+<text align="center">ㅤㅤㅤㅤㅤㅤㅤCEO OF JESTERDOLL 
 
 
 
